@@ -1,1 +1,1 @@
-# potential-IA
+Uma descrição de quem sou! :D
